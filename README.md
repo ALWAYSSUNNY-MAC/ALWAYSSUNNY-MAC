@@ -1,3 +1,9 @@
+<div align="center">
+
+![Profile visitors](https://komarev.com/ghpvc/?username=ALWAYSSUNNY-MAC&label=Customers4paddys!&color=orange&sstyle=flat-square)
+
+</div>
+
 <p align="center">
   <img src="https://files.catbox.moe/qxeige.gif" alt="Mac points a gun"/>
 </p>
