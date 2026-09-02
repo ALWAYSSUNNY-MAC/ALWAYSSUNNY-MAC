@@ -4,3 +4,4 @@
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31rcdkxxu72dgifgd3ilf5lwhlbi&cover_image=true&theme=novatorem&show_offline=true&background_color=5c0701&interchange=false&profanity=false&hide_remaster=false&bar_color=da5100&bar_color_cover=false">
   </a>
 </p>
+Read rentry for info
