@@ -1,8 +1,7 @@
-<div align="center">
+<p align="center">
+  <img src="https://files.catbox.moe/qxeige.gif" alt="Mac points a gun"/>
+</p>
 
-![Alt text](https://files.catbox.moe/bxaijq.gif)
-
-</div>
 <p align="center">
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31rcdkxxu72dgifgd3ilf5lwhlbi&redirect=true">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31rcdkxxu72dgifgd3ilf5lwhlbi&cover_image=true&theme=novatorem&show_offline=true&background_color=5c0701&interchange=false&profanity=false&hide_remaster=false&bar_color=da5100&bar_color_cover=false">
