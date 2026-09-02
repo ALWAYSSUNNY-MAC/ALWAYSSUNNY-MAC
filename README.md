@@ -1,2 +1,6 @@
 ![](https://files.catbox.moe/or1nev.png)
--> Mac / Zayn ![](https://files.catbox.moe/3qg7gd.gif) 16  it / its ou Angel/angels   aroace + pansexual <-
+<p align="center">
+  <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31rcdkxxu72dgifgd3ilf5lwhlbi&redirect=true">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31rcdkxxu72dgifgd3ilf5lwhlbi&cover_image=true&theme=novatorem&show_offline=true&background_color=5c0701&interchange=false&profanity=false&hide_remaster=false&bar_color=da5100&bar_color_cover=false">
+  </a>
+</p>
