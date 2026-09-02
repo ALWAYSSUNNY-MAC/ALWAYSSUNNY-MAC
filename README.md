@@ -1,6 +1,6 @@
 <div align="center">
 
-![Profile visitors](https://komarev.com/ghpvc/?username=ALWAYSSUNNY-MAC&label=Customers4paddys!&color=orange&sstyle=flat-square)
+![Profile visitors](https://komarev.com/ghpvc/?username=ALWAYSSUNNY-MAC&label=thegang&color=yellow&style=flat-square)
 
 </div>
 
