@@ -17,3 +17,7 @@
 
 
 </div>
+<p align="center">
+  <img src="https://files.catbox.moe/crxln2.jpeg" alt="MacDennis fanart okay"/>
+</p>
+Litwarry me and who 😭😭😭😭😭😭😭😭
