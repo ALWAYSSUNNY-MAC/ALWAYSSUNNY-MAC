@@ -26,8 +26,6 @@ PONYTOWNS MAC MCDONALD!
 </p>
 
 <div align="center">
-<p align="center">
-  <img src="https://files.catbox.moe/0jxss8.jpeg" alt="evil mac amd charlie"/>
-</p>
+  
 Creator of killer mac…#coming soon
-my ao3 if you’re interested in reading it! https://archiveofourown.org/users/alwayssunny1nph1lly
+[my ao3 if you’re interested in reading it](https://archiveofourown.org/users/alwayssunny1nph1lly)
