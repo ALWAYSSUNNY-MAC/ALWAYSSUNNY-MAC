@@ -1,4 +1,3 @@
-<div align="center">
 
 ![Profile visitors](https://komarev.com/ghpvc/?username=ALWAYSSUNNY-MAC&label=thegang&color=yellow&style=flat-square)
 
@@ -20,3 +19,9 @@
 <p align="center">
   <img src="https://files.catbox.moe/73kyww.png" alt="the gang AWWWH"/>
 </p>
+ </div>
+<p align="center">
+PONYTOWNS MAC MCDONALD!
+</p>
+
+<div align="center">
