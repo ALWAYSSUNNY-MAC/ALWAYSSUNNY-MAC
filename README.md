@@ -18,6 +18,5 @@
 
 </div>
 <p align="center">
-  <img src="https://files.catbox.moe/crxln2.jpeg" alt="MacDennis fanart okay"/>
+  <img src="https://files.catbox.moe/73kyww.png" alt="the gang AWWWH"/>
 </p>
-Litwarry me and who 😭😭😭😭😭😭😭😭
