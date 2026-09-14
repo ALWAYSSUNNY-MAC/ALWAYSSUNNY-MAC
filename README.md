@@ -5,7 +5,7 @@
 </div>
 
 <p align="center">
-  <img src="https://files.catbox.moe/qxeige.gif" alt="Mac points a gun"/>
+  <img src="https://files.catbox.moe/igrt9z.gif" alt="go lil mac go!!!"/>
 </p>
 
 <p align="center">
