@@ -5,7 +5,7 @@
 </div>
 
 <p align="center">
-  <img src="https://files.catbox.moe/igrt9z.gif" alt="go lil mac go!!!"/>
+  <img src="https://files.catbox.moe/psdpvb.png" alt="Dennis and Mac"/>
 </p>
 
 <p align="center">
@@ -13,19 +13,14 @@
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31rcdkxxu72dgifgd3ilf5lwhlbi&cover_image=true&theme=novatorem&show_offline=true&background_color=5c0701&interchange=false&profanity=false&hide_remaster=false&bar_color=da5100&bar_color_cover=false">
 <div align="center">
 
-[rentry](https://rentry.co/alwayssunnyphilly) [ata](https://alwayssunnyinphilly.atabook.org/) [straw](https://spoonyspoon1cus.straw.page) [pronouns page](https://en.pronouns.page/@BRODY-BAYWATCH)
+[𝐑𝖾𐓣𝗍𝗋𝗒](https://rentry.co/alwayssunnyphilly) [𝐀𝗍α](https://alwayssunnyinphilly.atabook.org/) [𝐎ᥣᑯ 𝗌𝗍𝗋αωρα𝗀𝖾, 𐓣𝖾ω ⱺ𐓣𝖾 𝗂𝗌 ω𝗂ρ](https://spoonyspoon1cus.straw.page) [𝐏𝗋ⱺ𐓣ⱺυ𐓣𝗌 ρα𝗀𝖾](https://en.pronouns.page/@BRODY-BAYWATCH)
 
 
 </div>
 <p align="center">
-  <img src="https://files.catbox.moe/73kyww.png" alt="the gang AWWWH"/>
+  <img src="https://files.catbox.moe/x4za44.gif" alt="Me and who whines"/>
 </p>
  </div>
 <p align="center">
-PONYTOWNS MAC MCDONALD!
+𝐏ⱺ𐓣𝗒𝗍ⱺω𐓣𝗌 𐓣ⱺ1 𝐌α𝖼 𝐌𝖼𝐃ⱺ𐓣αᥣᑯ ρⱺ𐓣𝗒!
 </p>
-
-<div align="center">
-  
-Creator of killer mac…#coming soon
-[my ao3 if you’re interested in reading it](https://archiveofourown.org/users/alwayssunny1nph1lly)
